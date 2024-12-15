@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Robyn-bot
+- 👀 I’m interested in: Neural signals
+- 🌱 I’m currently learning: Digital biosignal processing
+- 💞️ I’m looking to collaborate on: Cochlear implants
+- 📫 How to reach me: lsy.robyn@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I love playing the cello!
